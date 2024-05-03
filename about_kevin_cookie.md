@@ -1,4 +1,4 @@
-# Kevin Cookie Company
+# Kevin cookies 🍪😋...!!! 
 
 ## 1. Founding
 
